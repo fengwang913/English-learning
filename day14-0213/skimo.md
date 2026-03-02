@@ -1,0 +1,10 @@
+How do you fancy being up a mountian at a height of around 3000 meters with temperature below zero,snow underfoot,variable weather,racing up and downhill? This is how some athletes will be competing in this year's Winter Olympics.
+
+Skimo,short for ski mountaineering,is the newest winter Olympic sport,and will debut at the 2026 games in Milan-cortain. It combines Alpine skiing with mountaineering and is a race against time where athletes are required to ascend and descend mountainous terrain using skis and other specilised equipment.
+
+At the Olympics,there will be a relay event,and also sprint competition which lasts just few minutes.Athletes start in a steep,uphill section using climbing skins. There are detachable grippy strips you attach to skis to prevent sliding.The athletes then rapidly transition to boot packing where skis carried on a backpack as they run up an incline as fast as possible.There is then a technical downhill course full of tight turns and obstacles.Because of all the transitions,races can be won or lost in seconds depending on how smoothly the athelets can switch between modes.
+
+One hopeful Brithish qualifier and a number of the GB skimo squad is lain inner.Despite the sport being included in the winter Olympics,which he says is a great news,he doesn't think the events accurately represent ski mountaineering."There is no element of mountaineering whatsoever,as the world cups and Olympics are held on man-made slopes,with berms and jumps and prefectly cut steps on the climbs" he told the British mountaineering council.
+
+However,inclusion in the Olympics is a positive reflection of the sport's global growth and development.The International ski mountaineering federation(ISMF) oversees the regalution and promotion of the sport and has established a world cup circuit,as well as **conteniental (continental)** and world championship all of which have hleped evelate the sport's standing.So look out this extreme sport this year and feel that adrenaline rush.
+
