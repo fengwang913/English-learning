@@ -1,0 +1,5 @@
+How do you fancy being up a mountain at **(a)** height of around 3000 metres with the temperature below zero,snow underfoot,variable weather,racing up and downhill?This is how some athletes will be competing in this year's winter Olympic(s).
+
+Skimo,short for ski mountaineering,is the newest winter Olympic sport and will debut at the 2026 games in Milan-cortain.It combines Alpine skiing **(with)** mountaineering and is a race againt time where athletes are required to ascend and descend mountainous terrain using **ski(s)** and other specialised equipment.
+
+At the Olympics,there will be a relay event,and also a sprint competition which lasts just **a** few minutes.Athletes start in a steep uphill section using climbing skins. There are detachable grippy strips you attach to skis to prevent sliding.The athletes then rapidly transition to boot packing where skis are carried on a backpack as they run up an incline as fast as possible.There is then a techcial downhill course full of tight turuns and abstacles.Because of all the transitions,races can be won or lost in seconds depending on how smoothly the athletes can switch between modes.
